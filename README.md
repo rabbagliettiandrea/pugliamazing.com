@@ -8,4 +8,4 @@ Wanna buy it? That's on sale!
 
 ### Contact
 
-Having some sort of questions? Feel free to contact me, I'm on [LinkedIn](https://www.linkedin.com/in/andrearabbaglietti/) and [Facebook](https://www.facebook.com/andrea.fishbone).
+Having some sort of questions? Feel free to contact me, I'm on [LinkedIn](https://www.linkedin.com/in/andrearabbaglietti/) and [Facebook](https://www.facebook.com/andrea.rabbaglietti).
